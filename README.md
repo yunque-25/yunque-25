@@ -2,6 +2,6 @@
 
 
 
-- 🔭 I’m a studet.
+- 🔭 I’m a student.
 - 📫 How to reach me: qq:2356763360
 
